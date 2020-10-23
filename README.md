@@ -41,5 +41,7 @@ Stories written by partners based on this research included:
 * Hampshire Live: [Hampshire police wrongly cancelled half of sexual offence investigations](https://www.hampshirelive.news/news/hampshire-news/hampshire-police-cancelled-sexual-offences-4634100) *23 October 2020*
 * The Northern Echo: [North-East police forces wrongly cancelled reports of sexual and violent offences](https://www.thenorthernecho.co.uk/news/18817816.north-east-police-forces-wrongly-cancelled-reports-sexual-violent-offences/) *23 October 2020*
 * Hemel Today: [Hertfordshire Police wrongly cancelled reports of sexual and violent offences](https://www.hemeltoday.co.uk/news/people/hertfordshire-police-wrongly-cancelled-reports-sexual-and-violent-offences-3013497) *23 October 2020*
+* Hampshire Chronicle: [Hampshire Police slammed for cancelling investigations](https://www.hampshirechronicle.co.uk/news/18816766.hampshire-police-slammed-cancelling-investigations/) *23 October 2020*
+* Basingstoke Gazette: [Hampshire Police slammed for cancelling investigations](https://www.basingstokegazette.co.uk/news/18817089.hampshire-police-slammed-cancelling-investigations/) *23 October 2020*
 
 The story was also used by BBC Radio Leicester, BBC Radio Cambridgeshire, BBC Radio Shropshire and BBC Radio Sussex.
