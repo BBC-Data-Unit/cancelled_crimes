@@ -44,4 +44,8 @@ Stories written by partners based on this research included:
 * Hampshire Chronicle: [Hampshire Police slammed for cancelling investigations](https://www.hampshirechronicle.co.uk/news/18816766.hampshire-police-slammed-cancelling-investigations/) *23 October 2020*
 * Basingstoke Gazette: [Hampshire Police slammed for cancelling investigations](https://www.basingstokegazette.co.uk/news/18817089.hampshire-police-slammed-cancelling-investigations/) *23 October 2020*
 
-The story was also used by BBC Radio Leicester, BBC Radio Cambridgeshire, BBC Radio Shropshire and BBC Radio Sussex.
+The story was also used by BBC Radio Leicester, BBC Radio Cambridgeshire, BBC Radio Shropshire, BBC Radio Sussex, Look North (East Yorkshire and Lincolnshire) BBC Radio Humberside and BBC Three Counties Radio.
+
+## Other usage
+
+* The Telegraph: [Rape and violence reports wrongly cancelled by police in up to half of cases, study reveals](https://www.telegraph.co.uk/news/2020/10/23/rape-violence-reports-wrongly-cancelled-police-half-cases-study/) *23 October 2020*
