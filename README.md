@@ -43,6 +43,8 @@ Stories written by partners based on this research included:
 * Hemel Today: [Hertfordshire Police wrongly cancelled reports of sexual and violent offences](https://www.hemeltoday.co.uk/news/people/hertfordshire-police-wrongly-cancelled-reports-sexual-and-violent-offences-3013497) *23 October 2020*
 * Hampshire Chronicle: [Hampshire Police slammed for cancelling investigations](https://www.hampshirechronicle.co.uk/news/18816766.hampshire-police-slammed-cancelling-investigations/) *23 October 2020*
 * Basingstoke Gazette: [Hampshire Police slammed for cancelling investigations](https://www.basingstokegazette.co.uk/news/18817089.hampshire-police-slammed-cancelling-investigations/) *23 October 2020*
+* South Wales Argus: [Gwent Police on cancelled crime reports](https://www.southwalesargus.co.uk/news/18821028.gwent-police-cancelled-crime-reports/) *25 October 2020*
+* Manchester Evening News: [Greater Manchester Police have wrongly written off crime records - including sex offences and robberies](https://www.manchestereveningnews.co.uk/news/greater-manchester-news/greater-manchester-police-wrongly-written-19150379) *26 October 2020*
 
 The story was also used by BBC Radio Leicester, BBC Radio Cambridgeshire, BBC Radio Shropshire, BBC Radio Sussex, Look North (East Yorkshire and Lincolnshire) BBC Radio Humberside and BBC Three Counties Radio.
 
