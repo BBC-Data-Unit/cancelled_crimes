@@ -45,6 +45,8 @@ Stories written by partners based on this research included:
 * Basingstoke Gazette: [Hampshire Police slammed for cancelling investigations](https://www.basingstokegazette.co.uk/news/18817089.hampshire-police-slammed-cancelling-investigations/) *23 October 2020*
 * South Wales Argus: [Gwent Police on cancelled crime reports](https://www.southwalesargus.co.uk/news/18821028.gwent-police-cancelled-crime-reports/) *25 October 2020*
 * Manchester Evening News: [Greater Manchester Police have wrongly written off crime records - including sex offences and robberies](https://www.manchestereveningnews.co.uk/news/greater-manchester-news/greater-manchester-police-wrongly-written-19150379) *26 October 2020*
+* Lancashire Telegraph: [Police forces slammed for wrongly cancelling crime reports and not telling victims](https://www.lancashiretelegraph.co.uk/news/18824098.police-forces-slammed-wrongly-cancelling-crime-reports-not-telling-victims/) *27 October 2020*
+* Bolton News: [Police forces slammed over cancelled crime reports](https://www.theboltonnews.co.uk/news/18823496.police-forces-slammed-cancelled-crime-reports/) *27 October 2020*
 
 The story was also used by BBC Radio Leicester, BBC Radio Cambridgeshire, BBC Radio Shropshire, BBC Radio Sussex, Look North (East Yorkshire and Lincolnshire) BBC Radio Humberside and BBC Three Counties Radio.
 
